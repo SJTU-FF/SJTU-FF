@@ -1,1 +1,1 @@
-Becoming a bad AI-nativer...💣
+A bad Hello-worlder 💣💣
